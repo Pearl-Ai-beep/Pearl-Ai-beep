@@ -2,7 +2,7 @@
 - 👀 I’m interested in front-end, back-end and data analysis
 - 🌱 I’m currently learning data analysis and machine learning
 - 💞️ I’m looking to collaborate on anything possible
-- 📫 How to reach me https://wa.link/06f8vm/
+- 📫 How to reach me http://wa.me/+233558516170
 - 😄 Pronouns: Miss
 - ⚡ Fun fact: I am open-minded
 
